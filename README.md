@@ -1,9 +1,12 @@
 ![](https://64.media.tumblr.com/e4c5d67e2bea009b6f071a07f31d2e95/136b91c1e91842df-ec/s2048x3072/5e319d70bc4e819d3b953d5091307eac806ec504.pnj)
 ![](https://64.media.tumblr.com/5de9a0977b01ab59324ccb13f7cda5cf/a05fc3d00ef4deb7-68/s2048x3072/83d8012cf1e3b0b34f34dd721d6115c48ba5690e.pnj)
 
-<p align="center"><B>Amanda/Cinder</B></p>
-<p align="center">Alastor and Angel Dust kinnie</p>
+<p align="center"><B>Cinder/Amanda</B></p>
+<p align="center"><I>(Cinder preferred when in Hazbin skins)</I></p>
+<p align="center">Both demon and human Alastor kinnie, and Angel Dust kinnie</p>
+<p align="center">Queer dragon thing with antlers.</p>
 
+![](https://64.media.tumblr.com/4ca875e25fa23f80a959b3895eb780cb/12ea6ddc3894ee68-36/s2048x3072/bf3362d05bcbd93ca046e742eb4774293ce00b8d.pnj)
 ![](https://64.media.tumblr.com/5de9a0977b01ab59324ccb13f7cda5cf/a05fc3d00ef4deb7-68/s2048x3072/83d8012cf1e3b0b34f34dd721d6115c48ba5690e.pnj)
 
 <p align="center"><B>INSANE</B></p>
