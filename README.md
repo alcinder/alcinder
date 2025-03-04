@@ -14,6 +14,6 @@
 ![](https://64.media.tumblr.com/6519f549fccf203d0014a418d8a7bce8/61fcf01ec6f55cb7-87/s1280x1920/06e63c544cf47491f0a0266905fe2ad9ea46a7d5.pnj)
 ![](https://64.media.tumblr.com/a89d47a5950dc49c263c089b3ce1d786/8c678e392398726b-d8/s1280x1920/7da6e32f530a4038cbfbdba10ac6288ff34e3dec.pnj)
 
-<p align="center"><I>Valentino strict DNI. Lucifer skins on extremely thin ice except for my kid.</I></p>
+<p align="center"><I>Valentino strict DNI. Lucifer skins on extremely thin ice except for my kid. I <b>HATE</b> radioapple.</I></p>
 <!--
 **alcinder/alcinder** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
