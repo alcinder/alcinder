@@ -1,7 +1,7 @@
 ![](https://64.media.tumblr.com/e4c5d67e2bea009b6f071a07f31d2e95/136b91c1e91842df-ec/s2048x3072/5e319d70bc4e819d3b953d5091307eac806ec504.pnj)
 ![](https://64.media.tumblr.com/5de9a0977b01ab59324ccb13f7cda5cf/a05fc3d00ef4deb7-68/s2048x3072/83d8012cf1e3b0b34f34dd721d6115c48ba5690e.pnj)
 
-<h3 align="center"><B>Al/Cinder/Amanda</B></h3>
+<h2 align="center"><B>Al/Cinder/Amanda</B></h2>
 
 <p align="center"><I>(Al or Cinder preferred when in Hazbin skins)</I></p>
 <p align="center">Both demon and human Alastor kinnie, and Angel Dust kinnie</p>
