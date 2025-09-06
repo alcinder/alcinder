@@ -8,7 +8,7 @@
   <img src="https://64.media.tumblr.com/5de9a0977b01ab59324ccb13f7cda5cf/a05fc3d00ef4deb7-68/s2048x3072/83d8012cf1e3b0b34f34dd721d6115c48ba5690e.pnj">
 </div>
 
-<h2 align="center"><B>Al/Cinder/Amanda</B></h2>
+<h2 align="center"><B>Al/Cinder/Phil</B></h2>
 
 <p align="center"><I>(Al or Cinder preferred when in Hazbin skins)</I></p>
 <p align="center">Both demon and human Alastor kinnie, and Angel Dust kinnie</p>
@@ -30,7 +30,7 @@
   <img src="https://64.media.tumblr.com/a89d47a5950dc49c263c089b3ce1d786/8c678e392398726b-d8/s1280x1920/7da6e32f530a4038cbfbdba10ac6288ff34e3dec.pnj">
 </div>
 
-<h3 align="center"><I>Valentino strict DNI. Lucifer skins on extremely thin ice except for my kid. I <b>HATE</b> radioapple.</I></h3>
+<h3 align="center"><I>Valentino strict DNI. Lucifer skins on extremely thin ice. I <b>HATE</b> radioapple.</I></h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/aa32f34d4ece90d54c1a2ca29da87eaa/7b3ff35a96883592-f3/s2048x3072/3c1a11b8a381ce73d6824756fc2cf9fcec036485.pnj">
