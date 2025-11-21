@@ -8,7 +8,7 @@
   <img src="https://64.media.tumblr.com/5de9a0977b01ab59324ccb13f7cda5cf/a05fc3d00ef4deb7-68/s2048x3072/83d8012cf1e3b0b34f34dd721d6115c48ba5690e.pnj">
 </div>
 
-<h2 align="center"><B>Al/Cinder/Phil</B></h2>
+<h2 align="center"><B>Al/Cinder/Amanda</B></h2>
 
 <p align="center"><I>(Al or Cinder preferred when in Hazbin skins)</I></p>
 <p align="center">Both demon and human Alastor kinnie, and Angel Dust kinnie</p>
