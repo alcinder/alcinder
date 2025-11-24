@@ -30,7 +30,6 @@
   <img src="https://64.media.tumblr.com/a89d47a5950dc49c263c089b3ce1d786/8c678e392398726b-d8/s1280x1920/7da6e32f530a4038cbfbdba10ac6288ff34e3dec.pnj">
 </div>
 
-<h3 align="center"><I>Valentino strict DNI when I'm in my Angel Dust skin.</I></h3>
 <h3 align="center"><I>Lucifer skins on extremely thin ice when I'm in my Al skin. I <b>HATE</b> radioapple.</I></h3>
 <h3 align="center"><I>The softboi twinkification of Lucifer in s2 that completely nerfs him needs to stay the HELL away from me.</I></h3>
 
