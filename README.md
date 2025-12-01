@@ -12,6 +12,7 @@
 
 <p align="center"><I>(Al or Cinder preferred when in Hazbin skins)</I></p>
 <p align="center">Both demon and human Alastor kinnie, Velvette kinnie, Angel Dust kinnie</p>
+<p align="center">Covert system with Alastor and Angel Dust alters.</p>
 <p align="center">Queer dragon thing with antlers.</p>
 
 <div align="center">
