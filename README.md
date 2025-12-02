@@ -34,7 +34,6 @@
 <h3 align="center"><I>Lucifer skins on extremely thin ice when I'm in my Al skin. I <b>HATE</b> radioapple.</I></h3>
 <h3 align="center"><I>The softboi twinkification of Lucifer in s2 that completely nerfs him needs to be studied the way scientists put bacteria under a microscope.</I></h3>
 
-<p align="center">I don't want to be involved in old drama or take a side, so please respect that. I already feel partially responsible for encouraging it at the time. I have nothing against either party, as I was trying to act as the mediator during it and understood and cared for both sides.</p>
 <p align="center">On an unrelated note, I hope Oddie stays the HELL off of ponytown and gets therapy or something. Dude made me extremely uncomfortable while he was here and made me even more uncomfortable with radioapple by constantly pushing it and his flirting onto me.</p>
 
 <div align="center">
