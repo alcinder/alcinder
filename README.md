@@ -11,7 +11,7 @@
 <h2 align="center"><B>Al/Cinder/Amanda</B></h2>
 
 <p align="center"><I>(Al or Cinder preferred when in Hazbin skins)</I></p>
-<p align="center">Both demon and human Alastor kinnie, Velvette kinnie, Angel Dust kinnie</p>
+<p align="center">Both demon and human Alastor fictionkin, Angel Dust copinglink</p>
 <p align="center">Queer dragon thing with antlers.</p>
 <h3 align="center"><I>Unapologetic radiostatic/radiosilence shipper.</I></h3>
 
@@ -31,10 +31,9 @@
   <img src="https://64.media.tumblr.com/a89d47a5950dc49c263c089b3ce1d786/8c678e392398726b-d8/s1280x1920/7da6e32f530a4038cbfbdba10ac6288ff34e3dec.pnj">
 </div>
 
+<h3 align="center"><I>Val skins on thin ice when I'm in my Angel Dust skin, for obvious reasons.</I></h3>
 <h3 align="center"><I>Lucifer skins on extremely thin ice when I'm in my Al skin. I <b>HATE</b> radioapple.</I></h3>
-<h3 align="center"><I>The softboi twinkification of Lucifer in s2 that completely nerfs him needs to be studied the way scientists put bacteria under a microscope.</I></h3>
-
-<p align="center">On an unrelated note, I hope Oddie stays the HELL off of ponytown and gets therapy or something. Dude made me extremely uncomfortable while he was here and made me even more uncomfortable with radioapple by constantly pushing it and his flirting onto me.</p>
+<p align="center"><I>Whoever's bright idea it was to make Lucifer undergo softboi twinkification, that was an ass idea I dislike him even more now.</I></p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/aa32f34d4ece90d54c1a2ca29da87eaa/7b3ff35a96883592-f3/s2048x3072/3c1a11b8a381ce73d6824756fc2cf9fcec036485.pnj">
