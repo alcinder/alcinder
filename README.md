@@ -36,6 +36,7 @@
 <h3 align="center"><I>The softboi twinkification of Lucifer in s2 that completely nerfs him needs to be studied the way scientists put bacteria under a microscope.</I></h3>
 
 <p align="center">I don't want to be involved in old drama or take a side, so please respect that. I already feel partially responsible for encouraging it at the time. I have nothing against either party, as I was trying to act as the mediator during it and understood and cared for both sides.</p>
+<p align="center">On an unrelated note, I hope Oddie stays the HELL off of ponytown and gets therapy or something. Dude made me extremely uncomfortable while he was here and made me even more uncomfortable with radioapple by constantly pushing it and his flirting onto me.</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/aa32f34d4ece90d54c1a2ca29da87eaa/7b3ff35a96883592-f3/s2048x3072/3c1a11b8a381ce73d6824756fc2cf9fcec036485.pnj">
