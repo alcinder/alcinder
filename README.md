@@ -14,6 +14,7 @@
 <p align="center">Both demon and human Alastor kinnie, Velvette kinnie, Angel Dust kinnie</p>
 <p align="center">Covert system with Alastor and Angel Dust alters.</p>
 <p align="center">Queer dragon thing with antlers.</p>
+<h3 align="center"><I>Unapologetic radiostatic/radiosilence shipper.</I></h3>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/4ca875e25fa23f80a959b3895eb780cb/12ea6ddc3894ee68-36/s2048x3072/bf3362d05bcbd93ca046e742eb4774293ce00b8d.pnj">
