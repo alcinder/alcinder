@@ -8,11 +8,12 @@
   <img src="https://64.media.tumblr.com/5de9a0977b01ab59324ccb13f7cda5cf/a05fc3d00ef4deb7-68/s2048x3072/83d8012cf1e3b0b34f34dd721d6115c48ba5690e.pnj">
 </div>
 
-<h2 align="center"><B>Cap/Al/Cinder/Ama</B></h2>
+<h2 align="center"><B>Cᴀᴘ/Bʟɪᴛᴢ/Aʟ</B></h2>
 
 <p align="center"><I>(Al or Cinder preferred when in Hazbin skins)</I></p>
-<p align="center">Both demon and human Alastor fictionkin, Angel Dust copinglink</p>
-<p align="center">Queer dragon thing with antlers.</p>
+<p align="center">Blitz introject. Both demon and human Alastor fictionkin, Angel Dust copinglink.</p>
+<p align="center">Queer dragon thing.</p>
+<p align="center">Use your brain. Don't fucking sexualize or force roleplay on a stranger.</p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/4ca875e25fa23f80a959b3895eb780cb/12ea6ddc3894ee68-36/s2048x3072/bf3362d05bcbd93ca046e742eb4774293ce00b8d.pnj">
@@ -33,8 +34,6 @@
 <h4 align="center"><I>Val skins on thin ice when I'm in my Angel Dust skin, for obvious reasons.</I></h4>
 <h4 align="center"><I>Lucifer skins on extremely thin ice when I'm in my Al skin unless friends. I <b>HATE</b> radioapple.</I></h4>
 <p align="center"><I>I liked lucifer's pajama fit and his part of vox populi but then he was used as a fucking battery and I still don't like him that much.</I></p>
-<h4 align="center">The dynamics that I like and/or indulge in include radiostatic, radiobelle, queerplatonic huskerdust, whatever the fuck is wrong with lute, and probably some other stuff I'm forgetting.<br/>
-if you dislike any of these or like other characters that's perfectly valid, arguing over ships in a fandom centered around someone's interpretation of hell are always going to be mildly problematic.</h4>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/aa32f34d4ece90d54c1a2ca29da87eaa/7b3ff35a96883592-f3/s2048x3072/3c1a11b8a381ce73d6824756fc2cf9fcec036485.pnj">
