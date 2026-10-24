@@ -11,7 +11,7 @@
 <h2 align="center"><B>Cᴀᴘ/Bʟɪᴛᴢ/Aʟ</B></h2>
 
 <p align="center"><I>(Al or Blitz preferred when in Hazbin/Helluva skins)</I></p>
-<p align="center">Blitz introject. Both demon and human Alastor fictionkin, Angel Dust copinglink.</p>
+<p align="center">Blitz introject. Octavia Goetia high fictionkin. Both demon and human Alastor fictionkin, Angel Dust copinglink.</p>
 <p align="center">Queer dragon thing.</p>
 <p align="center">Use your brain. Don't fucking sexualize or force roleplay on a stranger.</p>
 
