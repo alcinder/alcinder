@@ -8,11 +8,11 @@
   <img src="https://64.media.tumblr.com/5de9a0977b01ab59324ccb13f7cda5cf/a05fc3d00ef4deb7-68/s2048x3072/83d8012cf1e3b0b34f34dd721d6115c48ba5690e.pnj">
 </div>
 
-<h2 align="center"><B>Cᴀᴘ/Bʟɪᴛᴢ/Aʟ</B></h2>
+<h2 align="center"><B>Vɪᴀ/Bʟɪᴛᴢ/Aʟ</B></h2>
 
-<p align="center"><I>(Al or Blitz preferred when in Hazbin/Helluva skins)</I></p>
-<p align="center">Blitz introject. Octavia Goetia high fictionkin. Both demon and human Alastor fictionkin, Angel Dust copinglink.</p>
-<p align="center">Queer dragon thing.</p>
+<p align="center">Blitz⊗ introject. Octavia Goetia high fictionkin/irl?<br/>
+Both demon and human Alastor fictionkin, Angel Dust copinglink.</p>
+<p align="center">Queer dragon/bird thing.</p>
 <p align="center">Use your brain. Don't fucking sexualize or force roleplay on a stranger.</p>
 
 <div align="center">
