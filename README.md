@@ -33,7 +33,7 @@ Both demon and human Alastor fictionkin, Angel Dust copinglink.</p>
 
 <h4 align="center"><I>Val skins on thin ice when I'm in my Angel Dust skin, for obvious reasons.</I></h4>
 <h4 align="center"><I>Lucifer skins on extremely thin ice when I'm in my Al skin unless friends. I <b>HATE</b> radioapple.</I></h4>
-<p align="center"><I>I liked lucifer's pajama fit and his part of vox populi but then he was used as a fucking battery and I still don't like him that much.</I></p>
+<p align="center"><I>Just... no ships in general. Thanks.</I></p>
 
 <div align="center">
   <img src="https://64.media.tumblr.com/aa32f34d4ece90d54c1a2ca29da87eaa/7b3ff35a96883592-f3/s2048x3072/3c1a11b8a381ce73d6824756fc2cf9fcec036485.pnj">
