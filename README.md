@@ -7,8 +7,9 @@
 
 <h2 align="center">Angel/Blitz/Via/Al</h2>
 
-<p align="center">Blitz⊗ introject. Octavia Goetia high fictionkin/irl?<br/>
-Both demon and human Alastor introject, Angel Dust copinglink.</p>
+<p align="center">Blitz⊗ introject. Angel Dust copinglink/irl.<br/>
+Both demon and human Alastor introject.<br/>
+Octavia Goetia fictionkin?</p>
 <p align="center">Queer dragon/bird thing with antlers.</p>
 <p align="center">Use your brain. Don't fucking sexualize or force roleplay on a stranger.<br/>
 I REPEAT, DO NOT RANDOMLY ROLEPLAY WITH ME.<br/>
