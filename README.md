@@ -11,6 +11,7 @@
 Both demon and human Alastor fictionkin, Angel Dust copinglink.</p>
 <p align="center">Queer dragon/bird thing with antlers.</p>
 <p align="center">Use your brain. Don't fucking sexualize or force roleplay on a stranger.<br/>
+I REPEAT, DO NOT RANDOMLY ROLEPLAY WITH ME.<br/>
 <I>Just... no ships in general. Thanks.</I></p>
 <p align="center">Valentino, Lucifer, and Andrealphus on thin ice iwec
 
